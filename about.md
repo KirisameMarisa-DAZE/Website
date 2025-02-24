@@ -3,7 +3,7 @@
 Ad: *University of Science and Technology of China, No.96,  
 JinZhai Road, Baohe District, Hefei, Anhui, 230026, P.R.China.*  
 Tel: 0086-0551-63600110  
-Mail: [page@mail.ustc.edu.cn](mailto:page@mail.ustc.edu.cn)
+Mail: Mail: [kirisame.marisa@ustc.edu](mailto:kirisame.marisa@ustc.edu)  
 
 ---
 
